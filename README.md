@@ -9,6 +9,7 @@
 - what more to add?????
 - how to learn more, ai is giving codes but its confusing 
 - im trying and will succeed now🙏
+- still trying 
 
 
 
