@@ -11,6 +11,8 @@
 - im trying and will succeed now🙏
 - still trying
 - im ready, open to abundance and wealth 555
+- i regret my past doing and i have paid the price and ready to take on my new role as a millionaire and on the path to billionaire.
+- 
 
 
 
