@@ -6,15 +6,6 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-- what more to add?????
-- how to learn more, ai is giving codes but its confusing 
-- im trying and will succeed now🙏
-- still trying
-- im ready, open to abundance and wealth 555
-- i regret my past doing and i have paid the price and ready to take on my new role as a millionaire and on the path to billionaire.
-- i declare to the universe that im ready to take on my new responsibility and achieve greatness.
-- im trying and now ready
-- i m ready
 - 
 
 
